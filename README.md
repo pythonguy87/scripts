@@ -1,1 +1,1 @@
-# for shits and gigs for info will add more later
+# for shits and gigs will add more later
